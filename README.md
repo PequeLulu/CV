@@ -28,7 +28,7 @@ es **Español**: Nativo <br>
 
 ## 👩🏼‍🎓 Educación
 
-**Diseño de Imagen y Sonido** - Escuela Panamericana de Arte, Diseño y Publicidad  <br>
+**Diseño de Imagen y Sonido** - Escuela Panamericana de Arte, Diseño y Publicidad <br>
 - Buenos Aires, Argentina _(Febrero 1993 - Diciembre 1995)_ <br>
 
 **Bachiller** - Hamilton College <br>
