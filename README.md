@@ -34,3 +34,4 @@ es **Español**: Nativo <br>
 **Bachiller** - Hamilton College <br>
 - Buenos Aires, Argentina _(1988 - 1992)_
 
+
