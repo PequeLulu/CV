@@ -2,7 +2,7 @@
 
 _Diseñadora de Imagen y Sonido_ <br>
 
-[Email](mailto:julietaluiso@gmail.com) / [LinkedIn](https://www.linkedin.com/in/maria-julieta-luiso/) / [GitHub](https://https://github.com/PequeLulu/) / [Twitter](https://twitter.com/LuisoJulieta) /
+[Email](mailto:julietaluiso@gmail.com) / [LinkedIn](blank:#https://www.linkedin.com/in/maria-julieta-luiso/) / [GitHub](https://https://github.com/PequeLulu/) / [Twitter](https://twitter.com/LuisoJulieta) /
 
 ## 👩🏼‍💻 Experiencia Laboral
 
